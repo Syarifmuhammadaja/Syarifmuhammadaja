@@ -1,6 +1,6 @@
 # Hi there, I'm Arif [Syarifmuhammadaja]👋
 ## About me:
-- 🔭 I’m working Graphic Designer Freelance
+- 🔭 I’m working As a Graphic Designer Freelance
 - 🌱 I’m currently learning Design
 - 💬 Ask me about anything
 - 📫 How to reach me: syarifmuhammad3116@gmail.com
